@@ -82,6 +82,8 @@ Each position has a customized display on the dashboard, making navigating easy 
 
 my recording limit on loom is 5 minutes hence i have 2 videos 
 https://www.loom.com/share/5d15c131549e4062906e39b5dd28bf2b?sid=54e03f9f-d513-48e2-b685-372ee523d828
+
+
 https://www.loom.com/share/1b933933130247bf8f429b4f71f55787?sid=8e3c4271-e0c3-4eb4-b9e8-5568c6e387ee 
 
 
